@@ -18,7 +18,7 @@ Soy Ingeniero Civil en Computación e Industrial de la Pontificia Universidad Ca
 
 ### Contacto
 
-📧 jaraya.business@[tu-dominio]
+📧 julin.araya@uc.cl
 💼 [LinkedIn](https://linkedin.com/in/julianaraya)
 📍 Santiago, Chile
 
